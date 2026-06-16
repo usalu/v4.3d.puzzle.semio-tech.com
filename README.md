@@ -1,1 +1,0 @@
-# v4.3d.puzzle.semio-tech.com
